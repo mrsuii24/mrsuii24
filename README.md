@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Suwaidi
-- 👀 I’m interested in coding and developing apps
-- 🌱 I’m currently learning Btech CSE
-- 💞️ I’m looking to collaborate on projects related to app development
+- 👀 I Njoy getting hands-on with frameworks,programming,marketing.
+- 🌱 currently pursuing Btech CSE
+- 💞️ Single
 - 📫 How to reach me wp-+91 7034741949/ insta@iam_suwy
 - 😄 Pronouns: Suwy
 - ⚡ Fun fact: I am friendly.
