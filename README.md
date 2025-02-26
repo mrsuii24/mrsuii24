@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Suwaidi
-- 👀 I Njoy getting hands-on with frameworks,programming,marketing.
+- 👀 I Njoy getting hands-on with frameworks, programming, marketing.
 - 🌱 currently pursuing Btech CSE
 - 💞️ Single
 - 📫 How to reach me wp-+91 7034741949/ insta@iam_suwy
